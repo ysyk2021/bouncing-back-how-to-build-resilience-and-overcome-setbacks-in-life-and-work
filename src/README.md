@@ -8,4 +8,4 @@ The book focuses on topics such as the power of mindset, coping strategies for d
 
 By reading Bouncing Back, readers will gain an understanding of key concepts related to resilience and learn practical ways to overcome obstacles and develop the skills needed to thrive in both their personal and professional lives. The book is ideal for anyone seeking to overcome setbacks, build resilience, and achieve their full potential.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
