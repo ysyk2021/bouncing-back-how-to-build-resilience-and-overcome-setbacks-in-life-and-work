@@ -1,5 +1,3 @@
-Welcome to Bouncing Back
-======================================
 
 Setbacks and challenges are an inevitable part of life, whether we encounter them in our personal lives or our professional careers. While these challenges can be difficult to endure, they also provide an opportunity for growth and development. Building resilience -- the ability to adapt and bounce back from adversity -- is crucial for overcoming setbacks and achieving long-term success.
 

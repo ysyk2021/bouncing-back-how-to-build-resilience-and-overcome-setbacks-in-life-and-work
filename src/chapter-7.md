@@ -1,5 +1,3 @@
-Chapter 6: Resilience in the Workplace
-======================================
 
 Resilience in the workplace is essential for navigating challenges and setbacks in one's career. In this chapter, we will explore techniques and strategies for building resilience in the workplace.
 

@@ -1,5 +1,3 @@
-Chapter 2: Emotional Intelligence
-=================================
 
 Emotional intelligence is a crucial component of resilience, as it allows individuals to effectively manage their own emotions and navigate social interactions with greater ease. In this chapter, we will explore techniques for understanding and managing emotions, as well as developing empathy and social awareness.
 

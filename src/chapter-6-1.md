@@ -1,5 +1,3 @@
-Building Strong Connections
-===================================================================
 
 Resilience in relationships is essential for building strong connections with others and navigating challenging situations together. In this chapter, we will explore techniques for developing resilience in relationships.
 

@@ -1,5 +1,3 @@
-Managing Your Emotions
-=========================================================
 
 Emotional intelligence is a crucial component of resilience, as it allows individuals to effectively manage their own emotions in the face of challenges and setbacks. In this chapter, we will explore techniques for managing emotions and building emotional intelligence.
 

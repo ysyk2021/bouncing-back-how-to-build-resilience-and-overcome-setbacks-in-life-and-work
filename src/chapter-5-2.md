@@ -1,5 +1,3 @@
-Building Resilience Through Challenges
-========================================================================
 
 Setbacks and challenges are a natural part of life, and they can be difficult to overcome without the right mindset. However, building resilience and developing a sense of perseverance and grit can help us navigate these challenges and emerge stronger on the other side.
 

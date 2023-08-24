@@ -1,5 +1,3 @@
-Building a Resilient Team
-=================================================================
 
 Resilience is not just an individual trait, but it can also be cultivated within teams. In this chapter, we will explore techniques for building a resilient team in the workplace.
 

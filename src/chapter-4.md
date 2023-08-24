@@ -1,5 +1,3 @@
-Chapter 3: Adaptability and Flexibility
-=======================================
 
 Adaptability and flexibility are crucial skills for building resilience and overcoming setbacks in life and work. In this chapter, we will explore techniques for learning to adapt to change, the importance of flexibility, and developing new skills.
 

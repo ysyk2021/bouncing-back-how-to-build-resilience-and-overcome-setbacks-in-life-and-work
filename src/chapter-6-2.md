@@ -1,5 +1,3 @@
-Dealing with Conflict and Difficult People
-==================================================================================
 
 Dealing with conflict and difficult people is an important aspect of developing resilience in relationships. In this chapter, we will explore techniques for managing conflict and navigating challenging relationships while maintaining strong connections with others.
 

@@ -1,5 +1,3 @@
-Navigating Personal Loss and Trauma
-===========================================================================
 
 Navigating personal loss and trauma is an important aspect of developing resilience in relationships. In this chapter, we will explore techniques for coping with personal loss and trauma while maintaining strong connections with loved ones.
 

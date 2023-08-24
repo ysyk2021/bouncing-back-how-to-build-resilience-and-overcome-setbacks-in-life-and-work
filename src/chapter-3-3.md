@@ -1,5 +1,3 @@
-Empathy and Social Awareness
-===============================================================
 
 Emotional intelligence is a key component of resilience, as it allows individuals to understand and manage their own emotions, as well as effectively navigate social interactions. In this chapter, we will explore the importance of empathy and social awareness in building emotional intelligence and resilience.
 

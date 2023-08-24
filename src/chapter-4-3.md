@@ -1,5 +1,3 @@
-Developing New Skills
-==============================================================
 
 Developing new skills is an important part of building resilience and adaptability in life and work. In this chapter, we will explore techniques for developing new skills and staying relevant in a rapidly changing world.
 

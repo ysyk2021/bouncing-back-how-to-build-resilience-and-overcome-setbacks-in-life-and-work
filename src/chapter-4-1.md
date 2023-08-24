@@ -1,5 +1,3 @@
-Learning to Adapt to Change
-====================================================================
 
 Adaptability and flexibility are essential skills for building resilience and overcoming setbacks in life and work. In this chapter, we will explore techniques for learning to adapt to change.
 

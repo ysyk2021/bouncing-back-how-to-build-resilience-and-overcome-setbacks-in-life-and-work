@@ -1,5 +1,3 @@
-Chapter 5: Resilience in Relationships
-======================================
 
 Resilience in relationships is essential for building strong connections with others and navigating challenges together. In this chapter, we will explore techniques for developing resilience in relationships.
 

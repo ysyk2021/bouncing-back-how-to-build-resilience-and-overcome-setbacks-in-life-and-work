@@ -1,4 +1,3 @@
-# Conclusion
 
 Congratulations on completing "Bouncing Back: How to Build Resilience and Overcome Setbacks in Life and Work". We hope that the techniques and strategies outlined in this book have been helpful in your journey towards greater resilience.
 

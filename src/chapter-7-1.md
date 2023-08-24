@@ -1,5 +1,3 @@
-Coping with Stress and Burnout
-======================================================================
 
 Coping with stress and burnout is a crucial component of developing resilience in the workplace. In this chapter, we will explore techniques for managing stress and avoiding burnout.
 

@@ -1,5 +1,3 @@
-Chapter 1: Mindset Matters
-==========================
 
 Mindset is a key component of resilience, shaping how individuals approach challenges and setbacks. In this chapter, we will explore the importance of mindset and techniques for cultivating a positive, growth-oriented attitude.
 

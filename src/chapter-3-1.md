@@ -1,5 +1,3 @@
-Understanding Your Emotions
-==============================================================
 
 Understanding your emotions is an important first step in building emotional intelligence and resilience. In this chapter, we will explore techniques for understanding and managing emotions.
 

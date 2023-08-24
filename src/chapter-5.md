@@ -1,5 +1,3 @@
-Chapter 4: Perseverance and Grit
-================================
 
 Perseverance and grit are essential components of resilience. In this chapter, we will explore the power of persistence and techniques for developing greater perseverance and grit.
 

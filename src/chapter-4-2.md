@@ -1,5 +1,3 @@
-The Importance of Flexibility
-======================================================================
 
 Flexibility is a key component of adaptability, which is essential for building resilience and overcoming setbacks in life and work. In this chapter, we will explore the importance of flexibility and techniques for developing a flexible mindset.
 

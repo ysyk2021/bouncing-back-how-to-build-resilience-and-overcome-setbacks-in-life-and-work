@@ -1,5 +1,3 @@
-Overcoming Self-Limiting Beliefs
-============================================================
 
 Mindset is a key component of resilience, as it shapes how individuals approach challenges and setbacks. In this chapter, we will explore the importance of mindset and techniques for overcoming self-limiting beliefs.
 

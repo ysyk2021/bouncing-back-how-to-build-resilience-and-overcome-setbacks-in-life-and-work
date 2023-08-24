@@ -1,5 +1,3 @@
-The Power of Positive Thinking
-==========================================================
 
 Positive thinking is a powerful tool for building resilience and overcoming setbacks in life and work. In this chapter, we will explore the importance of positive thinking and techniques for cultivating a positive attitude.
 

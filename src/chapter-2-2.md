@@ -1,5 +1,3 @@
-Cultivating a Growth Mindset
-========================================================
 
 Mindset is a crucial component of resilience, shaping how individuals approach challenges and setbacks. In this chapter, we will explore techniques for cultivating a growth mindset.
 

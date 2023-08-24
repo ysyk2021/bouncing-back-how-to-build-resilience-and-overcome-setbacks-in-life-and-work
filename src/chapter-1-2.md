@@ -1,5 +1,3 @@
-Why Resilience Matters
-====================================
 
 In today's fast-paced and constantly changing world, the ability to adapt and rebound from setbacks is more important than ever before. Whether it's a personal challenge like a difficult breakup or a professional setback such as losing a job, setbacks are an inevitable part of life. However, the way in which we respond to these setbacks can ultimately affect our happiness, success, and overall well-being.
 
