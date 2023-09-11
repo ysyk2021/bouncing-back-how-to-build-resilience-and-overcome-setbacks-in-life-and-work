@@ -1,5 +1,4 @@
-Chapter 17: How This Book Can Help You
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this final chapter, we will explore how "Bouncing Back: How to Build Resilience and Overcome Setbacks in Life and Work" can be a valuable resource on your journey to resilience and personal development.
 

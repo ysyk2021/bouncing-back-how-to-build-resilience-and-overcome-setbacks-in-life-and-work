@@ -1,5 +1,4 @@
-Chapter 8: Navigating Personal Loss and Trauma
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Life is filled with unexpected challenges, including personal loss and trauma. Building resilience involves learning how to navigate these difficult experiences and emerge stronger on the other side. In this chapter, we'll explore strategies for coping with personal loss and trauma in both life and work.
 

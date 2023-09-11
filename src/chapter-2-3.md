@@ -1,5 +1,4 @@
-Chapter 12: Overcoming Self-Limiting Beliefs
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-limiting beliefs can be formidable barriers to resilience and personal growth. In this chapter, we'll explore the impact of these beliefs, strategies for identifying and challenging them, and how to replace them with empowering and resilient mindsets.
 

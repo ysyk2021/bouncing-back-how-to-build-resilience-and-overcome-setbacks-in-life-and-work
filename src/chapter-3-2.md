@@ -1,5 +1,4 @@
-Chapter 12: Managing Your Emotions
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our exploration of resilience, understanding and managing emotions stands as a cornerstone. This chapter delves deep into the role of emotional management in cultivating resilience and offers practical strategies to navigate the ebb and flow of emotions, ensuring they become your allies in facing life's adversities.
 

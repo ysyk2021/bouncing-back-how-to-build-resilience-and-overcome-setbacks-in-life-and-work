@@ -1,5 +1,4 @@
-Chapter 6: Dealing with Conflict and Difficult People
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Conflict and challenging individuals are inevitable aspects of both life and work. Learning how to navigate these situations effectively is a key component of building resilience and overcoming setbacks. In this chapter, we will explore strategies and techniques for handling conflict and dealing with difficult people in a constructive and resilient manner.
 

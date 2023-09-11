@@ -1,5 +1,4 @@
-Chapter 15: Coping with Stress and Burnout
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the critical topic of coping with stress and burnout, offering strategies and insights to help you build resilience and regain balance in your life and work.
 

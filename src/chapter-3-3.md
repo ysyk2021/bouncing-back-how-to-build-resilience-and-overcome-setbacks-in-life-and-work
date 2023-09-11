@@ -1,5 +1,4 @@
-Chapter 7: Empathy and Social Awareness
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital role of empathy and social awareness in building resilience and effectively overcoming setbacks in both your personal and professional life.
 

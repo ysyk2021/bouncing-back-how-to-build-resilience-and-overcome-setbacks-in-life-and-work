@@ -1,5 +1,4 @@
-Chapter 9: Building Strong Connections
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Strong connections with others are a cornerstone of resilience, providing support and a sense of belonging during life's challenges. In this chapter, we'll explore the importance of building and nurturing meaningful relationships in both personal and professional spheres.
 

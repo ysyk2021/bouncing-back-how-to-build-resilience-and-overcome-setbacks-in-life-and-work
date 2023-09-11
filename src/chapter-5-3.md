@@ -1,5 +1,4 @@
-Chapter 14: Overcoming Obstacles and Failure
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial topic of overcoming obstacles and failures, exploring strategies and mindsets that can help you bounce back from setbacks in life and work.
 

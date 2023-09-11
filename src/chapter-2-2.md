@@ -1,5 +1,4 @@
-Chapter 13: Cultivating a Growth Mindset
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A growth mindset is a powerful mindset that fosters resilience and personal development. In this chapter, we'll explore the concept of a growth mindset, its impact on your ability to bounce back from setbacks, and strategies for cultivating and nurturing this mindset in your life and work.
 

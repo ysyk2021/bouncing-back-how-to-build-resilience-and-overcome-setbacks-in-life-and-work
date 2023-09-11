@@ -1,5 +1,4 @@
-Chapter 19: The Power of Persistence
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the crucial role that persistence plays in building resilience and overcoming setbacks in both your personal life and your career.
 

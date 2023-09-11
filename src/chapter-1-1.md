@@ -1,5 +1,4 @@
-Chapter 1: Welcome to *Bouncing Back*
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this introductory chapter, we embark on a journey to explore the profound concept of resilience and how it can empower you to overcome setbacks in both your personal and professional life.
 

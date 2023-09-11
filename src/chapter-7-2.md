@@ -1,5 +1,4 @@
-Chapter 18: Handling Workplace Challenges
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and insights for effectively handling workplace challenges, building resilience, and thriving in your professional life.
 

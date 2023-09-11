@@ -1,5 +1,4 @@
-Chapter 11: The Power of Positive Thinking
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Positive thinking is a potent tool for building resilience and overcoming setbacks. In this chapter, we'll explore the importance of cultivating a positive mindset, how it impacts your ability to bounce back, and strategies for incorporating positivity into your life and work.
 

@@ -1,5 +1,4 @@
-Chapter 16: Building Resilience Through Challenges
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the transformative power of challenges in building resilience. By embracing and navigating challenges effectively, you can strengthen your ability to bounce back from setbacks in life and work.
 

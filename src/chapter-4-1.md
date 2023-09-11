@@ -1,5 +1,4 @@
-Chapter 7: Learning to Adapt to Change
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Change is a constant in both life and work, and the ability to adapt is a crucial component of resilience. In this chapter, we will explore the concept of change, the challenges it presents, and strategies for learning to adapt effectively in the face of life's inevitable shifts.
 

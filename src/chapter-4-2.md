@@ -1,5 +1,4 @@
-Chapter 10: The Importance of Flexibility
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Flexibility is a key attribute of resilience, enabling individuals to adapt to changing circumstances and bounce back from setbacks. In this chapter, we'll explore the significance of flexibility in both personal and professional contexts, and how it contributes to building resilience.
 
